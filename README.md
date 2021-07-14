@@ -2,7 +2,7 @@
 
 I'm a 🦖 when counted in 💻 years. But in 👨‍🔬 years, I'm only about halfway there!
 
-- I like 🗺️, 🥋, 🎺, 🐉, 🕹️, 📷, 📚, 🕺, 🥃, 🎲/♣️ when I'm not <💾 />
+- I like 🌏 🥋 🎺 🐉 🕹️ 📷 📚 🕺 🥃 🎲 / ♣️ when I'm not <💾 />
 - Other places to find me are:
   - https://www.windgazer.nl/
   - https://pebble.windgazer.nl/
