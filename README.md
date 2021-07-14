@@ -9,7 +9,7 @@ I'm a 🦖 when counted in 💻 years. But in 👨‍🔬 years, I'm only about 
   - https://nl.linkedin.com/in/reurings
   - https://gitlab.com/windgazer
 - When it comes to computers I like:
-  - Gaming! ;)
+  - Gaming! ;) (Only half-joking, Gamification is underrated)
   - UX implementation
   - CSS, Javascript, HTML (in that order)
   - IoT
